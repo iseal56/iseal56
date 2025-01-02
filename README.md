@@ -1,4 +1,4 @@
-# Hi there, I'm iseal56! 👋
+# Hi there, I'm ISeal! 👋
 
 Welcome to my GitHub profile! Here's a bit about me:
 
